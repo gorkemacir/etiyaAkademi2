@@ -1,1 +1,0 @@
-# etiyaAkademi2
